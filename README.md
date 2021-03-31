@@ -1,2 +1,2 @@
-# LOLOLOLOLO
-LOLOLO HAHA HORES GO VROOM BRRR SHJDBFWU
+# barter-app-stage-6
+project 82
